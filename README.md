@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Olivia-Ware
 - 👀 I’m interested in: Making games that I enjoy
-- 🌱 I’m currently learning: IT Programming in my local College
+- 🌱 I’m currently learning: ~~IT Programming in my local College~~ I graduated :3
 - 💞️ I’m looking to collaborate on: n/a
 - 📫 How to reach me: n/a
 - 😄 Pronouns: She/Her
